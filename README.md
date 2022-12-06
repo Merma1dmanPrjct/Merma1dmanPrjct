@@ -14,7 +14,7 @@
 
 - 🤝 I’m looking for help with [Project-END](https://github.com/Project-E-N-D)
 
-- 💬 Ask me about **Redmi note 7/7s, Redmi 4a**
+- 💬 Ask me about **Redmi note 7/7s, SDM660**
 
 - 📫 How to reach me **febricahya12345@gmail.com**
 
